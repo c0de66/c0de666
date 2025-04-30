@@ -23,6 +23,7 @@ Alias: K.I.D
 Trace: Deleted
 Location: Uncharted
 Objective: Chaos. Knowledge. Control.
+Real Instagram @c0d_e666 only
 
 > "The system was built to be broken. I am the fracture that will make it fall."
 
