@@ -19,11 +19,16 @@ h1 align="center">- no system is safe -</h1>
 ## Who is K.I.D?
 
 Identity: Masked
+
 Alias: K.I.D
+
 Trace: Deleted
+
 Location: Uncharted
+
 Objective: Chaos. Knowledge. Control.
-Real Instagram @c0d_e666 only
+
+Real Instagram @c0d_e666 
 
 > "The system was built to be broken. I am the fracture that will make it fall."
 
